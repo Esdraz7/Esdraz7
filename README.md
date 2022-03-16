@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Esdraz7
-- 👀 I’m interested in coding...
-- 🌱 I’m currently learning coding...
-- 💞️ I’m looking to collaborate on coding...
-- 📫 How to reach me: message me.
+- 👋 Hi, I’m @esdras.nicolau
+- 👀 I’m interested in a lot of things!
+- 🌱 I’m currently learning how to enjoy life;
+- 💞️ I’m looking to collaborate on some projects.
+- 📫 How to reach me: dm me on ig!
